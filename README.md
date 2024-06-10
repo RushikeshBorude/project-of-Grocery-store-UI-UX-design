@@ -5,6 +5,7 @@ CASE STUDY OF Grocery store UI UX design
 [CASE STUDY OF Grocery store UI UX design.docx](https://github.com/user-attachments/files/15757311/CASE.STUDY.OF.Grocery.store.UI.UX.design.docx)
 
 PPT of Grocery store UI UX design.docx
+
 [PPT of Grocery store UI UX design.docx.pptx](https://github.com/user-attachments/files/15757315/PPT.of.Grocery.store.UI.UX.design.docx.pptx)
 
 
